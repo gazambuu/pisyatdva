@@ -3,4 +3,4 @@
 No v Pitere dusha, v Pitere semia, v Pitere bratva tam znaiut nashi imena!!!!
 Да здравствует Санкт-Петербург (А), и это город наш (YEEI)
 
-Made in Arbuzk-Team
+Made in Arbuzik-Team
